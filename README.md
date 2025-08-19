@@ -1,2 +1,1 @@
-<p align="center"> <img src="https://files.catbox.moe/acxsfw.webp" width=300> </p>-
-art by notadotjpeg
+<p align="center"> <img src="https://files.catbox.moe/185sw4.png" width=300> </p>-
